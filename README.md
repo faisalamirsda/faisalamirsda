@@ -1,1 +1,1 @@
-## Hi there 👋 amirisback here
+## People trust your skill not your github account
